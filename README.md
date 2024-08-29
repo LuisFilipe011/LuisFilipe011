@@ -1,4 +1,4 @@
-## segue la no ista @luis_zs_011
+## segue la no insta @luis_zs_011
 
 meu nome e luis e tenho 16 anos 
 
